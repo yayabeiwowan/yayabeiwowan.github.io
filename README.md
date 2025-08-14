@@ -1,1 +1,0 @@
-# yayabeiwowan.github.io
